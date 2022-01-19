@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @1a1luv1011 also in Ig)
+- 👋 Hi, I’m @1a1luv1011 [also in Ig]
 - 👀 I’m interested in the programming 
 - 📚 I´m student of Indigener of Systems in 🇵🇪
 - 📫 How to reach me? only writing at e-mail: ara.galletabts@gmail.com
